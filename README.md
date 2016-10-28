@@ -20,7 +20,7 @@
 - Fast Food Nation (DVD only) (2006) - http://www.foxsearchlight.com/fastfoodnation
 - Super Size Me (2004) - http://morganspurlock.com/work/super-size-me
 
-# No longer on Netflix
+# Previously on Netflix
 - Vanishing Of The Bees (2009) - http://www.vanishingbees.com
 - The Cove (2009) - http://thecovemovie.com 
 - Crazy Sexy Cancer (2007) - http://kriscarr.com/products/crazy-sexy-cancer
