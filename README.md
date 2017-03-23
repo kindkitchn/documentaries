@@ -1,3 +1,7 @@
+# New films not yet on Netflix
+- WHAT THE HEALTH (2017) - http://www.whatthehealthfilm.com
+- Eating You Alive (2016) - https://www.eatingyoualive.com/
+
 # Netflix
 - Food Choices (2016) - http://www.foodchoicesmovie.com
 - Plant Pure Nation (2015) - http://www.plantpurenation.com
